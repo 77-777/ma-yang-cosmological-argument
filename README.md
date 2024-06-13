@@ -38,5 +38,6 @@
 
 15. Concluding from all arguments presented so far, if there is a deity, then it has to be external to this universe.
 16. If there isn't a deity, the reason for the existence of our universe has to be external to this universe.
+17. Infinite regress to the physical world doesn't seem to make sense as it is merely conceptual.
 
 
