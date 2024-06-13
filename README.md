@@ -32,7 +32,7 @@
 
 12. The existence of a deity conflicts with the current state of the world and life's toils.
 13. The absence of a deity conflicts with the current state of the world and life's toils.
-14. The possibility that a deity is possible, but did not form (or no evidence is found) provides a case of questionable state.
+14. The possibility that a deity can exist is likely, but did not form (or no evidence is found) provides a case of questionable state.
 
 ---
 
