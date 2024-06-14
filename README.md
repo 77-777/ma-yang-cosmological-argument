@@ -41,3 +41,4 @@
 17. Infinite regress to the physical world doesn't seem to make sense as it is merely conceptual.
 
 
+Footnotes: From infinite regress, we **must** conclude that causality need not apply to everything. Invalidating #4.
